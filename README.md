@@ -2,7 +2,7 @@
 
 Я Татьяна Ищенко, QA Engineer
 
-[Мои работы](https://drive.google.com/drive/folders/1Or82L2eI7uiRfufvfvnTzCqFYoolCRCi?usp=sharing)
+[Мои работы](https://drive.google.com/drive/folders/1Or82L2eI7uiRfufvfvnTzCqFYoolCRCi?usp=sharing) по проекту Online-store "Bluerin"
 
 Мои контакты:
 

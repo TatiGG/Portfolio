@@ -1,4 +1,5 @@
 Запуск в терминале MacBookAir 13 М1
 
 export PATH=${PATH}:/usr/local/mysql/bin
-
+or
+mysql -u root -p

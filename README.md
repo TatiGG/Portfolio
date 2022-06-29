@@ -4,6 +4,8 @@
 
 [Мои работы](https://drive.google.com/drive/folders/1Or82L2eI7uiRfufvfvnTzCqFYoolCRCi?usp=sharing) по проекту Online-store "Bluerin"
 
+[Мои сертификаты](https://drive.google.com/file/d/1CtHjuRhoA8PvHr2FJ__5qkwTRa98mNrW/view?usp=sharing)
+
 Мои контакты:
 
 +7 (952) 665-01-51

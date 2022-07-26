@@ -4,7 +4,7 @@
 
 [Мои работы](https://drive.google.com/drive/folders/1EFRnvTGC_VIvXN6Hy1_miET_qazmCD5o?usp=sharing) по проекту Online-store "Bluerin"
 
-[Мои сертификаты](https://drive.google.com/file/d/1Fif1ON2bH_q3-5o2-CXzzs0hSbvK5RpD/view?usp=sharing)
+[Мои сертификаты](https://drive.google.com/drive/folders/1MPX0NHpr6Rjj18QeqNlvKX_E9IgZ7bty?usp=sharing)
 
 Мои контакты:
 

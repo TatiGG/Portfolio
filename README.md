@@ -14,5 +14,5 @@ E-mail: pr.ishchenko@yandex.ru
 
 Telegram: @TaIshchenko
 
-[Резюме](https://drive.google.com/file/d/1D-HkyI_D6nmygahqJZ9PeofnuLIO521C/view?usp=sharing)
+[Резюме](https://drive.google.com/file/d/1x738GIgUQvpvp0y0Mu9fcfAGvKXs6sTS/view?usp=sharing)
 
